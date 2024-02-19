@@ -1,0 +1,1 @@
+# University-Guidelines-on-Integrating-Generative-AI
